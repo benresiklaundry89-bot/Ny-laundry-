@@ -1,2 +1,0 @@
-# Ny-laundry-
-Kasir laundry 
